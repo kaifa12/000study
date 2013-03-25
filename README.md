@@ -1,4 +1,4 @@
 000study
 ========
 
-good good study,day day upp!
+good good study,day day up!
